@@ -1,1 +1,0 @@
-# kumakura8823.github.io
